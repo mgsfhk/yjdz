@@ -1,9 +1,1 @@
-老司机最新地址发布页
-永久地址：1080fhd.com
-备用下载地址如下
-http://1080hd.space
-http://995tt.pw
-http://a9se.com
-http://fhd10.xyz
-http://ljs1080hd.xyz
-http://lsj1080.space
+MGSFHK永久地址发布页： www.mgs8.vip
